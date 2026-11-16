@@ -1,2 +1,2 @@
 # App-Dev
-My first repository
+My Favorite Movie/Series is - ATTACK ON TITAN (SIRIES), HE'S DATING A BOLD STAR (MOVIE
